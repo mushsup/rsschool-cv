@@ -15,6 +15,7 @@ Deep understanding of product development processes.
 #### Education:
 * Belarusian State University of Informatics and Radioelectronics
 * Html Academy course
+
 #### English:
 Upper-intermediate. Over 3 years of communication experience in an international team. 
 #### Hobbies:
